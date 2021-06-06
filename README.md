@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @21se7en
+- 👀 I’m interested in this particular cmd and im still new and learning
+- 🌱 teach me and be nice🙋‍♂️🙌 🌍
